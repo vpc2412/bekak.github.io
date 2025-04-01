@@ -1,1 +1,0 @@
-# bekak.github.io
